@@ -12,8 +12,9 @@ northern connection is up
 dupa się szlaja po keflu (keflu) - 
 wiatr jej nie zniesie
 wiatr ją uniesie
-w jej sercu kefla, 4 na 4 
-(chłód) chłód ją rozgrzeje ej
+w jej sercu kefla, 
+4 na 4 
+- chłód ją rozgrzeje ej
 
 keflar na klacie
 lokalny squad
@@ -41,6 +42,8 @@ smaga mi twarz
 ja to pierdolę 
 bo co lepsze to potwarz
 co lepsze to strach
+
+[CHORUS]
 
 (jakaś)
 dupa się szlaja po keflu (keflu) - 
