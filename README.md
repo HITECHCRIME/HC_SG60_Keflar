@@ -9,7 +9,7 @@ dupa się szlaja po keflu (keflu) -
 wiatr jej nie zniesie
 wiatr ją uniesie
 w jej sercu kefla, 4 na 4 
-chłód ją rozgrzeje ej
+(chłód) chłód ją rozgrzeje ej
 
 keflar na klacie
 lokalny squad
@@ -22,8 +22,9 @@ takie życie
 
 dupa się szlaja po keflu
 co będzie się cofać, 
-wyśle ci drona
+wyśle ci drona te
 rejestry są osiągalne
+
 
 dupa się szlaja po keflu
 
@@ -32,6 +33,10 @@ czuję ten wiatr
 smaga mi twarz
 ja to pierdolę bo co lepsze to potwarz
 co lepsze to strach
+
+na swojej dzielni 
+tuż pod blokiem 
+#dahood #kefla #bejdog #mygurls #4x4 aaaaaaaaaa
 
 
 
