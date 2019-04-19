@@ -4,7 +4,7 @@ Hitech Crime Single "Keflar"
 ```
 
 shadow squad aye ya
-northern connection is up
+northern connection is up (what's
 
 [CHORUS]
 
@@ -18,7 +18,7 @@ w jej sercu kefla,
 
 keflar na klacie
 lokalny squad
-recon wśród wzgórz 
+recon wśród wzgórz, pac
 na samym szczycie (witam na szczycie)
 jedyne co widzą 
 to zamieć i chuj
