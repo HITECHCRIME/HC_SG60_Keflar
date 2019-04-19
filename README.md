@@ -1,8 +1,12 @@
 # HC_SG60_Keflar
 Hitech Crime Single "Keflar"
 
+```
+
 shadow squad aye ya
 northern connection is up
+
+[
 
 (jakaś)
 dupa się szlaja po keflu (keflu) - 
@@ -15,16 +19,16 @@ keflar na klacie
 lokalny squad
 recon wśród wzgórz 
 na samym szczycie (witam na szczycie)
-ale jedyne co widzą 
+jedyne co widzą 
 to zamieć i chuj
 zamieć i chuj
 takie życie
 
 dupa się szlaja po keflu
 co będzie się cofać, 
-wyśle ci drona - te
-rejestry są osiągalne
+wyśle ci drona
 
+te rejestry są osiągalne
 na swojej dzielni 
 tuż pod mym blokiem 
 
