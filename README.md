@@ -2,7 +2,7 @@
 Hitech Crime Single "Keflar"
 
 shadow squad aye ya
-northern connection up
+northern connection is up
 
 jakaś
 dupa się szlaja po keflu (keflu) - 
@@ -14,7 +14,7 @@ chłód ją rozgrzeje ej
 keflar na klacie
 lokalny squad
 recon wśród wzgórz 
-na samym szczycie
+na samym szczycie (witam na szczycie)
 ale jedyne co widzą 
 to zamieć i chuj
 zamieć i chuj
