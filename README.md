@@ -6,7 +6,7 @@ Hitech Crime Single "Keflar"
 shadow squad aye ya
 northern connection is up
 
-[
+[CHORUS]
 
 (jakaś)
 dupa się szlaja po keflu (keflu) - 
@@ -23,6 +23,8 @@ jedyne co widzą
 to zamieć i chuj
 zamieć i chuj
 takie życie
+
+[VERSE1]
 
 dupa się szlaja po keflu
 co będzie się cofać, 
