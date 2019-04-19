@@ -31,18 +31,22 @@ dupa się szlaja po keflu
 co będzie się cofać, 
 wyśle ci drona
 
-rejestry są osiągalne
+- rejestry są osiągalne
 na swojej dzielni 
 tuż pod mym blokiem 
 
 czuję ten squad
-czuję ten wiatr
+witam ten wiatr
 smaga mi twarz
 
 ja to pierdolę 
-co lepsze to strach
-bo co lepsze to potwarz
+co lepsze niż strach
+to nie gorsze niż potwarz
 ucieknę za mroźne półkole
+
+to nie jest jebany netflix
+lakeview prawdziwy,
+natura potęga większa niż umysł
 
 [CHORUS]
 
