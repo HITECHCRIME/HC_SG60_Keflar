@@ -18,7 +18,7 @@ w jej sercu kefla,
 
 keflar na klacie
 lokalny squad
-recon wśród wzgórz, pac
+recon wśród wzgórz, stack
 na samym szczycie (witam na szczycie)
 jedyne co widzą 
 to zamieć i chuj
