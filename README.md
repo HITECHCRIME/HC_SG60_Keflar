@@ -31,7 +31,7 @@ dupa się szlaja po keflu
 co będzie się cofać, 
 wyśle ci drona
 
-te rejestry są osiągalne
+rejestry są osiągalne
 na swojej dzielni 
 tuż pod mym blokiem 
 
@@ -40,8 +40,9 @@ czuję ten wiatr
 smaga mi twarz
 
 ja to pierdolę 
-bo co lepsze to potwarz
 co lepsze to strach
+bo co lepsze to potwarz
+ucieknę za mroźne półkole
 
 [CHORUS]
 
