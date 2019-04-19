@@ -45,7 +45,7 @@ to nie gorsze niż potwarz
 ucieknę za mroźne półkole
 
 to nie jest jebany netflix
-lakeview prawdziwy,
+lakeview jest tu prawdziwy,
 natura potęga większa niż umysł
 w tym majestacie
 zrozumiesz siebie
