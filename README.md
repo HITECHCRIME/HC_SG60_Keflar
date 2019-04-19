@@ -9,16 +9,13 @@ northern connection is up (what's
 [CHORUS]
 
 (jakaś)
-dupa się szlaja po keflu (keflu) - 
-wiatr jej nie zniesie
-wiatr ją uniesie
-w jej sercu kefla, 
-4 na 4 
+dupa się szlaja po keflu (keflu) 
+wiatr jej nie zniesie, wiatr ją uniesie
+w jej sercu kefla, 4 na 4 
 - chłód ją rozgrzeje ej
 
-keflar na klacie
-lokalny squad
-recon wśród wzgórz, stack
+keflar na klacie, lokalny squad
+recon wśród wzgórz, (stack)
 na samym szczycie (witam na szczycie)
 jedyne co widzą 
 to zamieć i chuj
