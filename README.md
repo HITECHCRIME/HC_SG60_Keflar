@@ -4,7 +4,7 @@ Hitech Crime Single "Keflar"
 ```
 
 shadow squad aye ya
-northern connection is up (what's
+northern connection is up (what's up)
 
 [CHORUS]
 
@@ -14,9 +14,11 @@ wiatr jej nie zniesie, wiatr ją uniesie
 w jej sercu kefla, 4 na 4 
 - chłód ją rozgrzeje ej
 
-keflar na klacie, lokalny squad
-recon wśród wzgórz, (stack)
+keflar na klacie
+lokalny squad
+recon wśród wzgórz (stack)
 na samym szczycie (witam na szczycie)
+
 jedyne co widzą 
 to zamieć i chuj
 zamieć i chuj
@@ -31,6 +33,7 @@ wyśle ci drona
 - rejestry są osiągalne
 na swojej dzielni 
 tuż pod mym blokiem 
+in da hood
 
 czuję ten squad
 witam ten wiatr
