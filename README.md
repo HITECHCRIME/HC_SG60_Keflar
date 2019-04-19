@@ -5,7 +5,7 @@ shadow squad aye ya
 northern connection up
 
 jakaś
-dupa się szlaja po keflu
+dupa się szlaja po keflu - 
 wiatr jej nie zniesie
 wiatr ją uniesie
 
@@ -14,11 +14,15 @@ chłód ją rozgrzeje ej
 
 keflar na klacie
 lokalny squad
-(jest) pośród wzgórz na szczycie
-
+recon pośród wzgórz 
+na samym szczycie
 ale jedyne co widzą 
 to zamieć i chuj
 zamieć i chuj
+
+co będziesz się cofać, 
+wyślij drona
+rejestry są osiągalne
 
 dupa się szlaja po keflu
 dupa się szlaja po keflu
