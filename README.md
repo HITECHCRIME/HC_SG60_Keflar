@@ -47,6 +47,8 @@ ucieknę za mroźne półkole
 to nie jest jebany netflix
 lakeview prawdziwy,
 natura potęga większa niż umysł
+w tym majestacie
+zrozumiesz siebie
 
 [CHORUS]
 
