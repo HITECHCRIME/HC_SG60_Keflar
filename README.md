@@ -32,7 +32,7 @@ wyśle ci drona
 
 - rejestry są osiągalne
 na swojej dzielni 
-tuż pod mym blokiem 
+tuż pod mym blokiem (na mych blokach)
 in da hood
 
 czuję ten squad
