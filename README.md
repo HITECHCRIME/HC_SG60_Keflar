@@ -16,8 +16,8 @@ w jej sercu kefla, 4 na 4
 
 keflar na klacie
 lokalny squad
-recon wśród wzgórz (stack)
-na samym szczycie (witam na szczycie)
+recon wśród wzgórz stack
+na samym szczycie
 
 jedyne co widzą 
 to zamieć i chuj
@@ -34,7 +34,6 @@ wyśle ci drona
 na swojej dzielni 
 tuż pod mym blokiem (na mych blokach)
 in da hood
-
 czuję ten squad
 witam ten wiatr
 smaga mi twarz
@@ -42,13 +41,20 @@ smaga mi twarz
 ja to pierdolę 
 co lepsze niż strach
 to nie gorsze niż potwarz
-ucieknę za mroźne półkole
+ucieknę za mroźne półkole (inwazja za mroźne półkole)
 
 to nie jest jebany netflix
 lakeview jest tu prawdziwy,
 natura potęga większa niż umysł
 w tym majestacie
 zrozumiesz siebie
+ale póki nie usłyszę
+witam na szczycie
+kurwa idziemy w zaparte
+idziemy pod górę, 
+i nie ma uników
+i nie ma powrotu
+idziemy na parter (nie wracam)
 
 [CHORUS]
 
