@@ -11,50 +11,30 @@ northern connection is up (what's up)
 (jakaś)
 dupa się szlaja po keflu (keflu) 
 wiatr jej nie zniesie, wiatr ją uniesie
-w jej sercu kefla, 4 na 4 
-- chłód ją rozgrzeje ej
-
-keflar na klacie
-lokalny squad
-recon wśród wzgórz stack
-na samym szczycie
-
-jedyne co widzą 
-to zamieć i chuj
-zamieć i chuj
-takie życie
+w jej sercu kefla, 4 na 4 - chłód ją rozgrzeje ej
+keflar na klacie, lokalny squad
+recon wśród wzgórz stack na samym szczycie
+jedyne co widzą to zamieć i chuj
+zamieć i chuj takie życie
 
 [VERSE1]
 
-dupa się szlaja po keflu
-co będzie się cofać, 
-wyśle ci drona
-
-- rejestry są osiągalne
-na swojej dzielni 
-tuż pod mym blokiem (na mych blokach)
+dupa się szlaja po keflu, co będzie się cofać, 
+wyśle ci (im) drona - rejestry są osiągalne
+na swojej dzielni tuż pod mym blokiem (na mych blokach) 
 in da hood
-czuję ten squad
-witam ten wiatr
-smaga mi twarz
-
-ja to pierdolę 
-co lepsze niż strach
-to nie gorsze niż potwarz
+czuję ten squad, witam ten wiatr, smaga mi twarz
+ja to pierdolę, co lepsze niż strach to nie gorsze niż potwarz
 ucieknę za mroźne półkole (inwazja za mroźne półkole)
 
 to nie jest jebany netflix
-lakeview jest tu prawdziwy,
-natura potęga większa niż umysł
-w tym majestacie
-zrozumiesz siebie
-ale póki nie usłyszę
-witam na szczycie
-kurwa idziemy w zaparte
-idziemy pod górę, 
-i nie ma uników
-i nie ma powrotu
-nie wracam na parter
+lakeview jest tu prawdziwy
+natura potęga większa niż umysł 
+w tym majestacie zrozumiesz siebie
+
+ale póki nie usłyszę, witam na szczycie
+kurwa idziemy w zaparte, idziemy pod górę, 
+i nie ma uników, i nie ma powrotu, nie wracam na parter
 
 [CHORUS]
 
