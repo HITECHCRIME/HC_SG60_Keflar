@@ -54,7 +54,7 @@ kurwa idziemy w zaparte
 idziemy pod górę, 
 i nie ma uników
 i nie ma powrotu
-idziemy na parter (nie wracam)
+nie wracam na parter
 
 [CHORUS]
 
