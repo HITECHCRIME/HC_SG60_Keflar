@@ -29,12 +29,15 @@ ucieknę za mroźne półkole (inwazja za mroźne półkole)
 
 to nie jest jebany netflix
 lakeview jest tu prawdziwy
-natura potęga większa niż umysł 
+natura potęga większa niż umysł
+północ za dnia, 23:30 a tu słońce na niebie
 w tym majestacie zrozumiesz siebie
 
 ale póki nie usłyszę, witam na szczycie
 kurwa idziemy w zaparte, idziemy pod górę, 
 i nie ma uników, i nie ma powrotu, nie wracam na parter
+
+
 
 [CHORUS]
 
@@ -53,6 +56,9 @@ ale jedyne co widzą
 to zamieć i chuj
 zamieć i chuj
 takie życie
+
+
+
 
 
 #dahood #kefla #bejdog #mygurls #4x4 aaaaaaaaaa
